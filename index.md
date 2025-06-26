@@ -24,4 +24,4 @@
 
 ---
 
-📫 Связь: your.email@example.com
+📫 Связь: nazdrachevasa@gmail.com
